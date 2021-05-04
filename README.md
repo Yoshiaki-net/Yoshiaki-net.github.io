@@ -1,1 +1,0 @@
-# Yoshiaki-net.github.io
